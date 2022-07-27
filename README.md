@@ -22,4 +22,4 @@
 <br>
 <br>
 
-[![Discord Presence](https://lanyard.cnrad.dev/api/465255663380070420)](https://discord.com/users/465255663380070420)
+
