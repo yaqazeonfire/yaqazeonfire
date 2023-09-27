@@ -3,7 +3,7 @@
 <br>
 <br>
 <br>
-<b>Hi, Im yaqaze and I am learning how to code I am currently a .lua script developer 😁</b>
+<b>Hi, Im yaqaze and I am a lua and c++ developer 😁</b>
 <br>
 <br>
 <ul>
