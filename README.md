@@ -1,14 +1,10 @@
-## 2 owners
+## KEN
 <img src="https://thumbs.gfycat.com/QuerulousKnobbyCuckoo-size_restricted.gif" alt="https://github.com/eksotopro" style="max-width: 100%;"> <br><br>
 <br>
 <br>
 <br>
-<b>Hi, Im yaqaze and I am a lua and c++ developer and I am a reverse engineering pro 😎</b>
+<b>Hi, Im dtbken and I am a lua and c++ developer and I am a reverse engineering pro 😎</b>
 <br>
-<br>
-<br>
-<b>Hi, Im ezaqay and I am a lua and c++
-developer i am currently learing reverse engineering🥹 </b>
 
 <ul>
 <br>
